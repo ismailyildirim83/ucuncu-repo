@@ -1,0 +1,2 @@
+# ucuncu-repo
+ücüncü acıklama
